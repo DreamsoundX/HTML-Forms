@@ -1,1 +1,1 @@
-## Tasks from Freelancer Life Style YouTube chanell
+Tasks from Freelancer Life Style YouTube channel
